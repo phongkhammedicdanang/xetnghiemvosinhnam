@@ -1,0 +1,2 @@
+# xetnghiemvosinhnam
+Hiện nay, với sự phát triển của di truyền học nghiên cứu ở cả mức độ phân tử và tế bào đã giúp chúng ta hiểu biết và làm sáng tỏ được nguyên nhân vô tinh hoặc thiểu tinh dẫn đến vô sinh nam giới là do biến đổi di truyền mà trước đây được xếp vào vô sinh không rõ nguyên nhân. Trong các nguyên nhân vô sinh do nam giới, có khoảng 10% – 15% trường hợp vô tinh và 5% thiểu tinh nặng có bất thường về di truyền. 
